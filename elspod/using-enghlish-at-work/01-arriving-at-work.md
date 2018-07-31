@@ -24,17 +24,13 @@ To give you a chance to hear different voices speaking English the voice used in
 
 
 
-Are you ready? 
+Are you ready? Let's begin with lesson one: **Arriving at Work**. 
 
 ---
 
+正文 慢速：
 
-
-Let's begin with lesson one: Arriving at Work. 
-
-
-
-I woke up this morning and thought,"TGIF!" I have been looking forward to the weekend and all I need to do is to get through one more day of work. 
+I woke up this morning and thought,**"TGIF!"** I have been looking forward to the weekend and all I need to do is to get through one more day of work. 
 
 
 
@@ -92,7 +88,7 @@ What a joker!
 
 ---
 
-
+讲解：
 
 - I began by saying that when I woke up, I thought,"TGIF!" "TGIF" is an "acronym,"meaning that each letter is the first letter of another word. 
 
@@ -328,7 +324,7 @@ This time, I'm going to speaking more quickly, at the speed that a native speake
 
 ---
 
-
+正常速度：
 
 I woke up this morning and thought,"TGIF!" I have been looking forward to the weekend and all I need to do is to get through one more day of work. 
 
