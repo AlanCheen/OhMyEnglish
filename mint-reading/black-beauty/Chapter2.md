@@ -132,3 +132,6 @@ The earlier you start,the sooner you'll be back. 你出发得越早，回来得�
 
 
 
+🌴「turn sb out」：（尤指把某人从其长期居住处）撵走，赶出。举个例子：The drunk man was turned out of the bar. 醉汉被赶出了酒吧。
+
+🌴这句话的意思就是，Ginger把被赶出单人间的怨气发在了新来的Darkie身上，埋怨他作为一个年轻男子竟然占了她一个女子的地盘。
