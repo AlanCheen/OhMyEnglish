@@ -1,6 +1,6 @@
 # Chapter 2
 
-- 8月15日知识点总结 - 
+- 8月15日知识点总结 - https://reading.baicizhan.com/article/ee317cc61b46a4cc87567e70720e9a2c
 
 🎈- 背景知识 -🎈 
 
@@ -135,3 +135,84 @@ The earlier you start,the sooner you'll be back. 你出发得越早，回来得�
 🌴「turn sb out」：（尤指把某人从其长期居住处）撵走，赶出。举个例子：The drunk man was turned out of the bar. 醉汉被赶出了酒吧。
 
 🌴这句话的意思就是，Ginger把被赶出单人间的怨气发在了新来的Darkie身上，埋怨他作为一个年轻男子竟然占了她一个女子的地盘。
+
+
+
+12. I told him I never bit anything but grass and corn, and could not think what pleasure Ginger found in biting.
+
+🌴「but」在这里意思是“除……之外”，等于except。举个例子：Nobody shows up on his show but his friends. 除了他的朋友们，没人来看他的演出。
+
+🌴除了青草和谷物，Darkie从不咬其他的东西，所以他很费解Ginger到底有什么好乱咬的。
+
+
+
+🎈- 熟词生义 -🎈 
+
+1.「advantage」：在这里表示“得到的益处”，形容小黑因为这个训练经历受益匪浅，而不是“优势，优点”。
+
+☀原句：I must not forget to mention one part of my training, which I have always considered a very great advantage.
+
+☀例句：It would be to your advantage to wait a while.
+
+
+
+2.「course」： 常见的意思有“课程、一道菜”，这里表示“进程、过程”，短语「 in the course of 」意思是在…期间。
+
+☀原句：In the course of the day, many other trains went by, and sometimes made an awful loud sound. 
+
+☀例句：Let fate take its course.
+
+
+
+3.「stable」：平时我们常见的意思是形容词“稳定的、稳固的”，今天在文中做名词，表示“马厩”。
+
+☀原句：Thanks to my good master's care, I was not afraid at railway stations or in my own stable.
+
+☀例句：It is time to clean the stables.
+
+
+
+4.「bar」:常见的“酒吧、吧台,（金属）棒”，这里指的是“栅栏”。
+
+☀原句：The sides of the box were not very high, and so the horse could see all that went on through the iron bars at the top.
+
+☀例句：Someone climbed over the bar.
+
+
+
+5.「chance」：在这里不是表示“机会”，而是表示“运气、机缘”~
+
+☀原句：It is all chance for us.
+
+☀例句：It was chance that brought us together.
+
+
+
+6.「corn」：这个单词比较特殊~ 在英式英语里，corn可以作各类谷类粮食作物的集合名词，包括小麦、燕麦、大麦、黑麦、玉米等，还可以指这些作物的谷粒；而在美式英语里，corn则只表示玉米或玉米粒。
+
+☀原句： When I had eaten my corn, I looked round.
+
+☀例句：I always have corn for breakfast.
+
+
+
+🎈- 今日短语 -🎈
+
+- send sb to someplace 把某人送到某处
+- on the edge of 在……边上
+- run by 从旁跑过
+- at a distance 在远处
+- in the course of a day 在一天当中
+- do sb harm 伤害某人
+- at the sight/sound of 一看到…/一听到…
+- for no good reason 无缘无故
+- be shut in 被关在
+- live next door to sb 住某人隔壁
+- look across to sb (从对面) 朝某人看
+- have nothing to do with  与…毫无关系
+- (have) quarrel with sb 与某人争吵
+- live in peace 平静地生活
+- lose control of sth 失去对…的控制
+
+
+
